@@ -14,3 +14,9 @@ What you can do:
 - Access to VBAemailAutomation on GitHub Repository of will be granted upon confirmation
 
 Send your requests to prawn-transon-0j@icloud.com
+
+
+Prices:
+$59 p.m. - Monthly
+$54 p.m. - Annually ($648)
+$899 - Lifetime (buy the code)
